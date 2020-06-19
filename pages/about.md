@@ -24,18 +24,18 @@ My hope with this blog is to let you know that, where we share similar experienc
 
 ## Medical Advice
 
-Holistic health and well-being are two very important topics in my life, both in the physical realm as well as the mental/psychological realm. Some of my anecdotes will be related to my own experiences with medicine, alternatice & complementary healing, healing through food and supplements, and spirituality as the foundation of my mental health.
+Holistic health and well-being are two very important topics in my life, both in the physical realm as well as the mental/psychological realm. Some of my anecdotes will be related to my own experiences with medicine, alternative & complementary healing, healing through food and supplements, and spirituality as the foundation of my mental health.
 
 While I do firmly believe in my experiences and how I've been able to heal myself through research/assistance from functional medicine doctors, these anecdotes in no way serve as medical advice. If you are experiencing medical issues, please see a doctor in the field which your issue necessitates. 
 
 ## Anecdotal Aminah
 
-My name is Aminah and I am your resident anecdote pusher. In a world where many opinions exist, some without actual basis in experience or reality, it is difficult to find what we are looking for. I believe that when we search and allow ourselves to be properly guided, we will find exactly what we are looking for. 
+My name is Aminah and I am your resident anecdote pusher. In a world where many opinions exist, some without actual basis in experience or reality, it can be difficult to find what we are looking for. I believe that when we search and allow ourselves to be properly guided, we will find exactly what we are meant to find. 
 
 If you were guided here, welcome. 
 
 If you came here consciously through your own efforts, welcome.
 
-May you leave here with a new understanding of yourself through the words you find in this blog.
+As a virtual refuge for my kindred wanderer spirits, may you leave here with a new understanding of yourself through the words you find in this blog.
 
 ∞ AA
