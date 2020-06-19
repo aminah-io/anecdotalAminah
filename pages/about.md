@@ -18,7 +18,7 @@ The thing I love the most about anecdotes is that it lets us see a person for wh
 
 Contrary to some beliefs about anecdotes in relation to truthful experience sharing, my anecdotes are based on my own lived experiences. No storytelling happening here. 
 
-I actually encourage you to go out to experience things on your own, for your own sake and growth. One of the things I dislike most about religion is that, instead of experiencing life on one's own terms, many people use the experiences of the individuals in religious texts to base their lives and decisions on. Whether you are or aren't religious is neither here nor there. If you needed permission before to go out and LIVE, let these words serve as that permission. BE EMPOWERED TO LIVE YOUR FREAKIN LIFE, BABY!!!
+I actually encourage you to go out to experience things on your own, for your own sake and growth. One of the things I dislike most about religion is that, instead of experiencing life on one's own terms, many people use the experiences of the individuals in religious texts to base their lives and decisions off of. Whether you are or aren't religious is neither here nor there. If you needed permission before to go out and LIVE, let these words serve as that permission. BE EMPOWERED TO LIVE YOUR FREAKIN LIFE, BABY!!!
 
 My hope with this blog is to let you know that, where we share similar experiences, you're not alone. And in our differences, that there are many different ways to experience one thing or another. If you can walk away with one of those two, then my job here is done.
 
