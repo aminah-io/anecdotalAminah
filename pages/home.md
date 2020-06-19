@@ -3,6 +3,7 @@ layout: layouts/home.njk
 title: Home
 date: 2020-06-18
 permalink: /
+changeFreq: daily
 eleventyNavigation:
   key: Home
   order: 0
